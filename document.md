@@ -29,3 +29,10 @@ Kolodko Mihály alkotásainak különlegessége, hogy nem hagyományos kiállít
 **Emiatt a járókelők egy váratlan pillanatban is felfedezhetik őket. A miniszobrok keresése sokak számára izgalmas városi kalanddá vált.
 Munkássága új megközelítést ad a köztéri művészetnek, hiszen bebizonyítja, hogy egy apró alkotás is képes gondolatokat ébreszteni és érzelmeket kiváltani. Szobrai Budapest látképének különleges részévé váltak.**
 ![Kolodko](img_1792099241661_7f3a05927827f8.png)
+
+### Forrásgyűjtemény
+- https://hu.wikipedia.org/wiki/Kolodko_Mih%C3%A1ly
+- https://www.kozterkep.hu/alkotok/megtekintes/6186/kolodko-mihaly
+- https://www.kolodko.eu/for-all 
+- https://olyanjo.hu/cikk/kolodko-szobrok-terkep-az-osszes-hazai-kolodko-miniszobrok-terkepen/  
+- https://meglepetes.hu/riportok/2018/09/07/kolodko-mihaly-a-lakasban-ezek-a-figurak-megfulladnanak/
