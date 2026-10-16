@@ -1,4 +1,4 @@
-# <u>Kolodko Mihàly</u>
+# Kolodko Mihàly
 ![Kolodko](img_1792099016255_afde2e44fa28f.png)
 ## Bevezetés
 
